@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding, Math, languege learning, reading, cooking, game and all cute things.
 - 🌱 I’m currently learning Math and DL, etc..
 - 💞️ I’m looking to collaborate on projects relate to my field.
-- 📫 How to reach me ? Please contact with qg32@student.le.ac.uk or Enola_0323 by Wechat if you come from mainland China. 
+- 📫 How to reach me ? Please contact with qg32@student.le.ac.uk.
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: Always learn! thank you 
 
